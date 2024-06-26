@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me aera930908hdfrvb00@gmail.com
 - 😄 Pronouns: HUEVO
-- ⚡ Fun fact: I like music production, playing chess, watching horror movies and reading fantasy books
+- ⚡ Fun fact: I like music production, playing videogames, watching horror movies and reading fantasy books
 
 <!---
 ADAR/ADAR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
