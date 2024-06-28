@@ -2,7 +2,7 @@
 - 👀 I’m interested in C++, Python, etc.
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me d2037089@gmail.com or d2037089outlook.com
+- 📫 How to reach me d2037089@gmail.com
 - 😄 Pronouns: HUEVO
 - ⚡ Fun fact: I like music production, playing videogames, watching horror movies and reading fantasy books
 
