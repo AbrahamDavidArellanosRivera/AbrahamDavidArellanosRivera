@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me aera930908hdfrvb00@outlook.com
 aera930908hdfrvb00@gmail.com
-- 😄 Pronouns: _mexcla
+- 😄 Pronouns: ElGalloDeLasTres 
 - ⚡ Fun fact: I like music production, playing videogames, watching horror movies and reading fantasy books
 
 <!---
