@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me aera930908hdfrvb00@outlook.com
-- 😄 Pronouns: ElGalloDeLasTres
+aera930908hdfrvb00@gmail.com
+- 😄 Pronouns:Confi
 - ⚡ Fun fact: I like music production, playing videogames, watching horror movies and reading fantasy books
 
 <!---
