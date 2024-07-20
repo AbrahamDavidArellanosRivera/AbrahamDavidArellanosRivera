@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @_mexcla
+- 👋 Hi, I’m @elgallodelastres
 - 👀 I’m interested in C++, Python, etc.
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on ...
