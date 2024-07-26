@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @elgallodelastres
+- 👋 Hi, I’m @dr.makabro
 - 👀 I’m interested in C++, Python, etc.
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me aera930908hdfrvb00@outlook.com
 aera930908hdfrvb00@gmail.com
-- 😄 Pronouns: ElGalloDeLasTres 
+- 😄 Pronouns: Doctor Makabro
 - ⚡ Fun fact: I like music production, playing videogames, watching horror movies and reading fantasy books
 
 <!---
