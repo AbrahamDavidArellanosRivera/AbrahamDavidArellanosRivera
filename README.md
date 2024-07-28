@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me aera930908hdfrvb00@outlook.com
 aera930908hdfrvb00@gmail.com
-- 😄 Pronouns: ADAR
+- 😄 Pronouns:
 - ⚡ Fun fact: I like music production, playing video games and chess, watching horror movies and reading books.
 
 <!---
